@@ -1,2 +1,2 @@
-# pkchavva.github.io
+# Pavan Chavva
 About Pavan Chavva
